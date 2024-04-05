@@ -20,6 +20,6 @@
 [看片最新地址九 点击此处](https://www.simi123.fun#github)
 
 看片提醒您请注意，永久地址一定要加https
-移动网络经常屏蔽，请牢记永久地址 [https://dh.simi123.fun](https://www.simi123.fun#github)
+移动网络经常屏蔽，请牢记永久地址 [https://dh.simi123.fun](https://dh.simi123.fun#github)
 
 喜欢的狼友 请顺手star一下
